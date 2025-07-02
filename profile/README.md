@@ -1,4 +1,4 @@
-# 9999 Project Review: Is This \$9,999 AI Masterclass Worth It?.
+# 9999 Project Review: Is This \$9,999 AI Masterclass Worth It?
 ![9999 Project](https://github.com/user-attachments/assets/d77af7d0-1038-4a13-9685-4b521b56b1f9)
 ---
 
@@ -21,7 +21,7 @@ The 9999 Project is a premium AI-focused masterclass designed to provide exclusi
 
 The 9999 Project is available for a one-time payment of \$9,999. While the price point is steep, it offers lifetime access to all resources, community forums, and future updates.
 
-[Secure Your Spot in the 9999 Project Today](https://kelexbawz.com/9999-project)
+[Secure Your Spot in the 9999 Project Today](https://whop.com/9999-project?a=kelechienwere1234)
 
 ---
 
@@ -41,7 +41,7 @@ This masterclass is tailored for:
 * **Networking Opportunities:** Connect with professionals and enthusiasts in the field.
 * **Lifetime Access:** Benefit from ongoing updates and resources.
 
-[Unlock the Full Potential of AI with the 9999 Project](https://kelexbawz.com/9999-project)
+[Unlock the Full Potential of AI with the 9999 Project](https://whop.com/9999-project?a=kelechienwere1234)
 
 ---
 
@@ -75,6 +75,6 @@ Currently, there are no user reviews for the 9999 Project. Prospective members a
 
 The 9999 Project offers a unique opportunity for those deeply interested in AI. With its comprehensive resources and community support, it promises value for its price. However, due to the significant investment required, it's essential to assess personal goals and budget before committing.
 
-[Join the 9999 Project Now](https://kelexbawz.com/9999-project)
+[Join the 9999 Project Now](https://whop.com/9999-project?a=kelechienwere1234)
 
 ---
